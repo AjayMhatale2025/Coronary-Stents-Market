@@ -5,7 +5,7 @@ Cardiovascular diseases (CVDs) continue to be a leading cause of death worldwide
 
 ## Market Overview and Outlook: Expanding at a Robust Pace
 
-The global coronary stents market was valued at approximately US$ 7.22 billion in 2024 and is projected to grow at a compound annual growth rate (CAGR) of 5.3% from 2025 to 2035, eventually surpassing US$ 12.8 billion by the end of the forecast period. This growth is driven by the increasing prevalence of coronary artery disease (CAD), advancements in stent technology, and rising demand for minimally invasive procedures. 
+The global [coronary stents market](https://www.transparencymarketresearch.com/coronary-stents-market.html) was valued at approximately US$ 7.22 billion in 2024 and is projected to grow at a compound annual growth rate (CAGR) of 5.3% from 2025 to 2035, eventually surpassing US$ 12.8 billion by the end of the forecast period. This growth is driven by the increasing prevalence of coronary artery disease (CAD), advancements in stent technology, and rising demand for minimally invasive procedures. 
 
 Coronary stents have long been the go-to solution for treating blockages in coronary arteries. The devices are primarily classified into three types: bare metal stents (BMS), drug-eluting stents (DES), and bioabsorbable vascular scaffolds (BVS). While BMS were the first to be developed, DES and BVS have since revolutionized the treatment landscape by addressing some of the limitations of traditional stents, such as restenosis and re-narrowing of the artery. As such, the demand for these newer stent technologies is rapidly increasing, particularly in patients with complex conditions.
 
